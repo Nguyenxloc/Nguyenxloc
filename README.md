@@ -1,7 +1,5 @@
 ### Hi there 
-
-![Uploading cr7.gif…]()
-
+![cr7](https://github.com/Nguyenxloc/Nguyenxloc/assets/86769202/c7f58008-5167-4a6f-95f4-6af48fb1325b)
 
 
 <!--
